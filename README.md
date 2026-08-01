@@ -1,1 +1,1 @@
-# NARSUM-3
+# LT-Logo
